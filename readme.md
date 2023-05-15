@@ -1,2 +1,2 @@
 
-![image](https://user-images.githubusercontent.com/99772281/191820509-bce5bddd-f065-4260-b380-2fa1bc65c7fc.png)
+![churrascometro](https://github.com/ThallisAlbuquerque/churrascometro/assets/133246153/e2ad6f94-626a-48fe-9b41-e875ac922715)
